@@ -1,0 +1,2 @@
+# scam
+nothing free
